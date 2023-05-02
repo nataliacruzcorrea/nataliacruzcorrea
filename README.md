@@ -1,4 +1,4 @@
-### 👩‍💻 Oii, eu sou a Natália da Cruz
+### 👩‍💻 Oii, eu sou a Natália Cruz
 
  <center>
 <table>
